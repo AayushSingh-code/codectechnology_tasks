@@ -1,1 +1,0 @@
-# codectechnology_tasks
